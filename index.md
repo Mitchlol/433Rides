@@ -1,37 +1,58 @@
-## Welcome to GitHub Pages
+## 433 Rides General Info
+This years 433 rides are taking place in the beautiful PNW split between Portland and Seattle. 
+The rides will run for 13 days, from June 17th - June 30th.
+We will be alternating days between trails and street riding to give people a taste of everything this wonderful region has to offer.
 
-You can use the [editor on GitHub](https://github.com/Mitchlol/433Rides/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+### Signup
+Please fill oput the [Registration Form](https://forms.gle/nHmXQkhZocrwyvgi6)
+Join the [Telegram group](https://t.me/joinchat/V1fN-gZF4CT28Pyp)
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Schedule(Tentative)
+Portland June 17th - June 20st
+June 17th (Thursday)
+Arrive
+Check in & Chill goof off ride
+June 18th (Friday)
+Ride around portland all day (route TBD?)
+OMSI Arrive 6:00 - 6:30 ride starts 7pm
+Go the fuck to sleep
+June 19th (Saturday)
+Post Canyon All Day Meet there at 10:30 - 11:00
+June 20th (Sunday)
+Check out of Hotel
+Ride with Rev Rides Crew (in vancouver) Starts at noon (Find safe parking)
+Drive up to seattle & Check in to Hotel
 
-### Markdown
+Seattle June 20st - Jun 30th (Included)
+June 21st (Monday)
+Duthie Hill Mountain Bike Park (Mike says it’s cool)
+June 22nd (Tuesday)
+Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
+June 23rd (Wednesday)
+Port gamble
+June 24th (Thursday)
+SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride)
+June 25th (Friday)
+Tapeworm
+June 26th (Saturday)
+Seatac BMX and Brian’s area ride
+June 27th (Sunday)
+Oallie mountain & maybe Iron Horse Trail (Must be Scouted)
+June 28th (Monday)
+Late Washington Both Bridges & Mercer Island Loop
+June 29th (Tuesday)
+Capital Forest (Must be Scouted)
+June 30th (Wednesday)
+Check out of Hotel?
+Olympia
+Drive back to portland?
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
-```markdown
-Syntax highlighted code block
+Spare Ideas 
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Mitchlol/433Rides/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Bellingham Galbraith
+360 Trails
+Black Diamond
+Tiger Mountain
+Late Washington Both Bridges & Mercer Island Loop
+Olympia tour
