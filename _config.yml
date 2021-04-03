@@ -1,6 +1,6 @@
 theme: jekyll-theme-merlot
-title: 433 Rides ayyy
+title: 433 Rides
 description: Seattle June 17th - 30th 2021
+github_ribbon: false
 github:
   is_project_page: true
-  ribbon: false
