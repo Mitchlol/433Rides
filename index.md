@@ -9,19 +9,28 @@ We will be alternating days between trails and street riding to give people a ta
 
 ### Schedule(Tentative)
 #### Portland June 17th - June 20st
+We eill be staying at the [Hampton Inn & Suites Portland-Pearl District](https://www.hilton.com/en/hotels/pdxpdhx-hampton-suites-portland-pearl-district/?SEO_id=GMB-HX-PDXPDHX&y_source=1_ODIxMTUyNC03MTUtbG9jYXRpb24uZ29vZ2xlX3dlYnNpdGVfb3ZlcnJpZGU%3D)
+
 ###### June 17th (Thursday)
-Arrive  
-Check in & Chill goof off ride
+- 4:00 PM Arrive & Check in
+- Chill goof off ride
+
 ###### June 18th (Friday)
-Ride around portland all day (route TBD?)  
-OMSI Arrive 6:00 - 6:30 ride starts 7pm  
-Go the fuck to sleep  
+- Ride around portland all day (route TBD?)
+- 6:30PM OMSI AKA Portland Group Ride (7pm Rollout)
+  - [Parking](https://goo.gl/maps/tzqcW9i38PdXhXkt6) at Omsi
+  - [Meeting Point](https://goo.gl/maps/xh7NDiZHonnh6cgQ8) at Eastbank Esplanade
+
 ###### June 19th (Saturday)
-Post Canyon All Day Meet there at 10:30 - 11:00  
+- 10:30AM Post Canyon (11:00 Rollout)
+  - [Parking](https://goo.gl/maps/ym4d1khyEpFir6qQ9) on the side of the road at Family Man Staging Area
+  - Meet at cars
 ###### June 20th (Sunday)
-Check out of Hotel  
-Ride with Rev Rides Crew (in vancouver) Starts at noon (Find safe parking)  
-Drive up to seattle & Check in to Hotel  
+- 11:00 AM Check out of Hotel  
+- 12:00 Ride with Rev Rides Crew (Vancouver, WA)
+  - Find safe parking (cars will be loaded)?
+  - Meeting Point?  
+- Drive up to seattle & Check in to Hotel  
 
 #### Seattle June 20st - Jun 30th (Included)
 ###### June 21st (Monday)
