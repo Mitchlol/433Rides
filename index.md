@@ -4,26 +4,26 @@ The rides will run for 13 days, from June 17th - June 30th.
 We will be alternating days between trails and street riding to give people a taste of everything this wonderful region has to offer.
 
 ### Signup
-Please fill oput the [Registration Form](https://forms.gle/nHmXQkhZocrwyvgi6)
-Join the [Telegram group](https://t.me/joinchat/V1fN-gZF4CT28Pyp)
+1. Fill oput the [Registration Form](https://forms.gle/nHmXQkhZocrwyvgi6)
+1. Join the [Telegram group](https://t.me/joinchat/V1fN-gZF4CT28Pyp)
 
 ### Schedule(Tentative)
-Portland June 17th - June 20st
-June 17th (Thursday)
-Arrive
+#### Portland June 17th - June 20st
+###### June 17th (Thursday)
+Arrive  
 Check in & Chill goof off ride
-June 18th (Friday)
+###### June 18th (Friday)
 Ride around portland all day (route TBD?)
 OMSI Arrive 6:00 - 6:30 ride starts 7pm
 Go the fuck to sleep
-June 19th (Saturday)
+###### June 19th (Saturday)
 Post Canyon All Day Meet there at 10:30 - 11:00
-June 20th (Sunday)
+###### June 20th (Sunday)
 Check out of Hotel
 Ride with Rev Rides Crew (in vancouver) Starts at noon (Find safe parking)
 Drive up to seattle & Check in to Hotel
 
-Seattle June 20st - Jun 30th (Included)
+#### Seattle June 20st - Jun 30th (Included)
 June 21st (Monday)
 Duthie Hill Mountain Bike Park (Mike says it’s cool)
 June 22nd (Tuesday)
