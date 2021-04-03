@@ -9,7 +9,7 @@ We will be alternating days between trails and street riding to give people a ta
 
 ### Schedule(Tentative)
 #### Portland June 17th - June 20st
-We eill be staying at the [Hampton Inn & Suites Portland-Pearl District](https://www.hilton.com/en/hotels/pdxpdhx-hampton-suites-portland-pearl-district/?SEO_id=GMB-HX-PDXPDHX&y_source=1_ODIxMTUyNC03MTUtbG9jYXRpb24uZ29vZ2xlX3dlYnNpdGVfb3ZlcnJpZGU%3D)
+We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https://www.hilton.com/en/hotels/pdxpdhx-hampton-suites-portland-pearl-district/?SEO_id=GMB-HX-PDXPDHX&y_source=1_ODIxMTUyNC03MTUtbG9jYXRpb24uZ29vZ2xlX3dlYnNpdGVfb3ZlcnJpZGU%3D)
 
 ###### June 17th (Thursday)
 - **4:00 PM** Arrive & Check in to hotel
