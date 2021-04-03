@@ -20,6 +20,7 @@ We eill be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 
 ###### June 18th (Friday)
 - **11:00 AM** Ride around portland all day (route TBD?)
+  - [Meeting Point](https://g.page/hamptonpearl?share) at Hotel
 - **6:30 PM** OMSI AKA Portland Group Ride (7pm Rollout)
   - [Parking](https://goo.gl/maps/tzqcW9i38PdXhXkt6) at Omsi
   - [Meeting Point](https://goo.gl/maps/xh7NDiZHonnh6cgQ8) at Eastbank Esplanade
@@ -45,14 +46,14 @@ We eill be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 - **11:00** Duthie Hill Mountain Bike Park
 
 ###### June 22nd (Tuesday)
-Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
+- Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
 
 ###### June 23rd (Wednesday)
 - Port gamble
   - [Parking](https://goo.gl/maps/SLGe3NEW83WbwN9JA)
 
 ###### June 24th (Thursday)
-SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride)
+- SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride)
 
 ###### June 25th (Friday)
 - **10:30 AM** Tapeworm Trails
@@ -62,22 +63,23 @@ SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride)
   -[Parking](https://goo.gl/maps/BNJpBRZfmfrh5dWg7) at Pump Track 
 
 ###### June 27th (Sunday)
-Oallie mountain & maybe Iron Horse Trail (Must be Scouted)
+- Oallie mountain & maybe Iron Horse Trail (Must be Scouted)
 
 ###### June 28th (Monday)
-Late Washington Both Bridges & Mercer Island Loop
+- Late Washington Both Bridges & Mercer Island Loop
 
 ###### June 29th (Tuesday)
 - Capital Forest (No Cell Serivce)
   - [Parking](https://goo.gl/maps/jqB49Ag3U18FDCLb9)
   - Meet at cars
+
 ###### June 30th (Wednesday)
-Check out of Hotel?  
-Olympia  
-Drive back to portland?  
+- Check out of Hotel?  
+- Olympia?  
+- Drive back to portland?  
 
 
-#### Spare Ideas 
+### Spare Ideas 
 1. Bellingham Galbraith  
 1. 360 Trails  
 1. Black Diamond  
