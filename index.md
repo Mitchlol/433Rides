@@ -13,46 +13,45 @@ We will be alternating days between trails and street riding to give people a ta
 Arrive  
 Check in & Chill goof off ride
 ###### June 18th (Friday)
-Ride around portland all day (route TBD?)
-OMSI Arrive 6:00 - 6:30 ride starts 7pm
-Go the fuck to sleep
+Ride around portland all day (route TBD?)  
+OMSI Arrive 6:00 - 6:30 ride starts 7pm  
+Go the fuck to sleep  
 ###### June 19th (Saturday)
-Post Canyon All Day Meet there at 10:30 - 11:00
+Post Canyon All Day Meet there at 10:30 - 11:00  
 ###### June 20th (Sunday)
-Check out of Hotel
-Ride with Rev Rides Crew (in vancouver) Starts at noon (Find safe parking)
-Drive up to seattle & Check in to Hotel
+Check out of Hotel  
+Ride with Rev Rides Crew (in vancouver) Starts at noon (Find safe parking)  
+Drive up to seattle & Check in to Hotel  
 
 #### Seattle June 20st - Jun 30th (Included)
-June 21st (Monday)
+###### June 21st (Monday)
 Duthie Hill Mountain Bike Park (Mike says it’s cool)
-June 22nd (Tuesday)
+###### June 22nd (Tuesday)
 Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
-June 23rd (Wednesday)
+###### June 23rd (Wednesday)
 Port gamble
-June 24th (Thursday)
+###### June 24th (Thursday)
 SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride)
-June 25th (Friday)
+###### June 25th (Friday)
 Tapeworm
-June 26th (Saturday)
+###### June 26th (Saturday)
 Seatac BMX and Brian’s area ride
-June 27th (Sunday)
+###### June 27th (Sunday)
 Oallie mountain & maybe Iron Horse Trail (Must be Scouted)
-June 28th (Monday)
+###### June 28th (Monday)
 Late Washington Both Bridges & Mercer Island Loop
-June 29th (Tuesday)
+###### June 29th (Tuesday)
 Capital Forest (Must be Scouted)
-June 30th (Wednesday)
-Check out of Hotel?
-Olympia
-Drive back to portland?
+###### June 30th (Wednesday)
+Check out of Hotel?  
+Olympia  
+Drive back to portland?  
 
 
-Spare Ideas 
-
-Bellingham Galbraith
-360 Trails
-Black Diamond
-Tiger Mountain
-Late Washington Both Bridges & Mercer Island Loop
-Olympia tour
+#### Spare Ideas 
+1. Bellingham Galbraith  
+1. 360 Trails  
+1. Black Diamond  
+1. Tiger Mountain  
+1. Late Washington Both Bridges & Mercer Island Loop  
+1. Olympia tour  
