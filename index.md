@@ -57,10 +57,11 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 
 ###### June 25th (Friday)
 - **10:30 AM** Tapeworm Trails
+  - [parking](https://goo.gl/maps/wxiU7Nk3oWJJs9VQ8)
 
 ###### June 26th (Saturday)
 - Seatac BMX and Brian’s area ride
-  -[Parking](https://goo.gl/maps/BNJpBRZfmfrh5dWg7) at Pump Track 
+  - [Parking](https://goo.gl/maps/BNJpBRZfmfrh5dWg7) at Pump Track 
 
 ###### June 27th (Sunday)
 - Oallie mountain & maybe Iron Horse Trail (Must be Scouted)
