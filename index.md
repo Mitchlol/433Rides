@@ -31,14 +31,17 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 
 ###### June 20th (Sunday)
 - **12:00 PM** Ride with Rev Rides Crew (Vancouver, WA)
-  - Find safe parking (cars will be loaded)?
+  - Find your own safe parking (Lots in the area)
   - [Meeting Point](https://g.page/revrides360?share)  
 - **2:00 PM** Drive up to seattle
 
-#### Seattle June 20st - Jun 30th
+#### Seattle June 20th - Jun 30th
 
 ###### June 20th (Sunday) **CONTINUED**
-- **7:00 PM**  Check in to Hotel  
+- **5:00 PM**  Check in to Hotel
+- **7:30 PM**  Chill Tapeworm Sesh
+  - [parking](https://goo.gl/maps/wxiU7Nk3oWJJs9VQ8)
+  - Meet at cars
 
 ###### June 21st (Monday)
 - **11:00** Duthie Hill Mountain Bike Park
