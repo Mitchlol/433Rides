@@ -44,7 +44,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - Meet at cars
 
 ###### June 21st (Monday)
-- **11:00** Duthie Hill Mountain Bike Park
+- **11:00 AM** Duthie Hill Mountain Bike Park
   - [parking](https://goo.gl/maps/g7t7xTXpmuuTedZz6)
   - Meet at cars 
 
@@ -53,14 +53,13 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/jqmqzE9xLh74ve6A9) 
 
 ###### June 23rd (Wednesday)
-- **1:00PM** Black Diamond
-  - [Parking](https://goo.gl/maps/DmAbavMNfcoDvn5A6) 
+- **11:00 AM** Olallie mountain & Rattlesnek lake & maybe Iron Horse Trail (Must be Scouted)
 
 ###### June 24th (Thursday)
-- SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride)
+- **10:00 AM** SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride) (80 Miles)
 
 ###### June 25th (Friday)
-- **11:00** 360 Trails
+- **11:00 AM** 360 Trails
   - [Parking](https://goo.gl/maps/J7mjsVQcBQPYhuWX9) (**No Cell Service In Lot**)
 
 ###### June 26th (Saturday)
@@ -69,20 +68,21 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - Meet at cars
 
 ###### June 27th (Sunday)
-- Oallie mountain & maybe Iron Horse Trail (Must be Scouted)
+- **11:00 PM** Black Diamond
+  - [Parking](https://goo.gl/maps/DmAbavMNfcoDvn5A6) 
 
 ###### June 28th (Monday)
-- Late Washington Both Bridges & Mercer Island Loop
+- Lake Washington Both Bridges & Mercer Island Loop
 
 ###### June 29th (Tuesday)
-- Capital Forest (No Cell Serivce)
+- **12:00 PM** Capital Forest (No Cell Serivce) (Bumpy Dirty Drive)
   - [Parking](https://goo.gl/maps/jqB49Ag3U18FDCLb9)
   - Meet at cars
 
 ###### June 30th (Wednesday)
-- Check out of Hotel?  
-- Olympia?  
-- Drive back to portland?  
+- Check out of Hotel
+- **12:00 PM** Olympia Ride
+- Drive back to portland  
 
 
 ### Spare Ideas 
@@ -91,8 +91,4 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 1. Black Diamond  
 1. Tiger Mountain  
 1. Late Washington Both Bridges & Mercer Island Loop  
-1. Olympia tour  
-
-- **10:30 AM** Tapeworm Trails
-  - [parking](https://goo.gl/maps/wxiU7Nk3oWJJs9VQ8)
-  - Meet at cars
+1. Olympia tour
