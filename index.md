@@ -45,9 +45,12 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 
 ###### June 21st (Monday)
 - **11:00** Duthie Hill Mountain Bike Park
+  - [parking](https://goo.gl/maps/g7t7xTXpmuuTedZz6)
+  - Meet at cars 
 
 ###### June 22nd (Tuesday)
-- Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
+- **10:00 AM** Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
+  - [Parking](https://goo.gl/maps/jqmqzE9xLh74ve6A9) 
 
 ###### June 23rd (Wednesday)
 - Port gamble
@@ -55,6 +58,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 
 ###### June 24th (Thursday)
 - SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride)
+
 
 ###### June 25th (Friday)
 - **10:30 AM** Tapeworm Trails
