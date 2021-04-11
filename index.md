@@ -4,22 +4,21 @@ The rides will run for 13 days, from June 17th - June 30th.
 We will be alternating days between trails and street riding to give people a taste of everything this wonderful region has to offer.
 
 ### Signup
-1. Fill oput the [Registration Form](https://forms.gle/nHmXQkhZocrwyvgi6)
+1. Fill out the [Registration Form](https://forms.gle/nHmXQkhZocrwyvgi6)
 1. Join the [Telegram group](https://t.me/joinchat/V1fN-gZF4CT28Pyp)
 
 ### Schedule(Tentative)
-#### Portland June 17th - June 20st
+#### Portland June 17th - June 20th
 We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https://www.hilton.com/en/hotels/pdxpdhx-hampton-suites-portland-pearl-district/?SEO_id=GMB-HX-PDXPDHX&y_source=1_ODIxMTUyNC03MTUtbG9jYXRpb24uZ29vZ2xlX3dlYnNpdGVfb3ZlcnJpZGU%3D)
 
 ###### June 17th (Thursday)
 - **4:00 PM** Arrive & Check in to hotel
   - [Hotel](https://g.page/hamptonpearl?share)
-- **6:00 PM** Dinner (TBD)
 - **7:00 PM** Chill goof off ride
   - [Meeting Point](https://g.page/hamptonpearl?share) at Hotel
 
 ###### June 18th (Friday)
-- **11:00 AM** Ride around portland all day (route TBD?)
+- **11:00 AM** George Ballard Portland Tour
   - [Meeting Point](https://g.page/hamptonpearl?share) at Hotel
 - **6:30 PM** OMSI AKA Portland Group Ride (7pm Rollout)
   - [Parking](https://goo.gl/maps/tzqcW9i38PdXhXkt6) at Omsi
@@ -31,11 +30,10 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - Meet at cars
 
 ###### June 20th (Sunday)
-- **11:00 AM** Check out of Hotel  
 - **12:00 PM** Ride with Rev Rides Crew (Vancouver, WA)
   - Find safe parking (cars will be loaded)?
-  - Meeting Point?  
-- **4:00 PM** Drive up to seattle
+  - [Meeting Point](https://g.page/revrides360?share)  
+- **2:00 PM** Drive up to seattle
 
 #### Seattle June 20st - Jun 30th
 
