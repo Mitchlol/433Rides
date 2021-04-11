@@ -53,17 +53,15 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/jqmqzE9xLh74ve6A9) 
 
 ###### June 23rd (Wednesday)
-- Port gamble
-  - [Parking](https://goo.gl/maps/SLGe3NEW83WbwN9JA)
+- **1:00PM** Black Diamond
+  - [Parking](https://goo.gl/maps/DmAbavMNfcoDvn5A6) 
 
 ###### June 24th (Thursday)
 - SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride)
 
-
 ###### June 25th (Friday)
-- **10:30 AM** Tapeworm Trails
-  - [parking](https://goo.gl/maps/wxiU7Nk3oWJJs9VQ8)
-  - Meet at cars
+- **11:00** 360 Trails
+  - [Parking](https://goo.gl/maps/J7mjsVQcBQPYhuWX9) (**No Cell Service In Lot**)
 
 ###### June 26th (Saturday)
 - Seatac BMX and Brian’s area ride
@@ -94,3 +92,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 1. Tiger Mountain  
 1. Late Washington Both Bridges & Mercer Island Loop  
 1. Olympia tour  
+
+- **10:30 AM** Tapeworm Trails
+  - [parking](https://goo.gl/maps/wxiU7Nk3oWJJs9VQ8)
+  - Meet at cars
