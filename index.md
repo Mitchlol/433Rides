@@ -56,7 +56,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 - **11:00 AM** Olallie mountain & Rattlesnek lake & maybe Iron Horse Trail (Must be Scouted)
 
 ###### June 24th (Thursday)
-- **10:00 AM** SeaTac -> Tacoma/Ruston -> Vashon -> West seattle -> SeaTac (Brian’s Ride) (80 Miles)
+- **10:00 AM**  [Brian's Ride (63.5 Miles)](./brians_ride.md)
 
 ###### June 25th (Friday)
 - **11:00 AM** 360 Trails
