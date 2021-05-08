@@ -56,7 +56,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 - **11:00 AM** Olallie mountain & Rattlesnek lake & maybe Iron Horse Trail (Must be Scouted)
 
 ###### June 24th (Thursday)
-- **10:00 AM**  [Brian's Ride (63.5 Miles)](./brians_ride/brians_ride.md)
+- **10:00 AM**  [Brian's Ride (63.5 Miles+)](./brians_ride/brians_ride.md)
   - [Parking](https://goo.gl/maps/Fipu7G39QX1ySZqe7) 
 
 ###### June 25th (Friday)
