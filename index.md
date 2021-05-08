@@ -57,6 +57,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 
 ###### June 24th (Thursday)
 - **10:00 AM**  [Brian's Ride (63.5 Miles)](./brians_ride.md)
+  - [Parking](https://goo.gl/maps/Fipu7G39QX1ySZqe7) 
 
 ###### June 25th (Friday)
 - **11:00 AM** 360 Trails
