@@ -1,4 +1,4 @@
-## Brian's Ride
+## Brian's Ride (63.5 Miles+)
 
 We can meet at Marvista Park. [Parking](https://goo.gl/maps/Fipu7G39QX1ySZqe7) is free and the park isn’t usually busy. 
 
