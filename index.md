@@ -64,9 +64,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/J7mjsVQcBQPYhuWX9) (**No Cell Service In Lot**)
 
 ###### June 26th (Saturday)
-- Seatac BMX and Brian’s area ride
-  - [Parking](https://goo.gl/maps/BNJpBRZfmfrh5dWg7) at Pump Track
-  - Meet at cars
+- TBD
 
 ###### June 27th (Sunday)
 - **11:00 PM** Black Diamond
