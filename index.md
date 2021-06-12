@@ -66,7 +66,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 ###### June 26th (Saturday)
 - Daytime TBD
 - **7:00 PM** SNR Weekly Group Ride
-  - [Parking](https://goo.gl/maps/JyuJCGEytgEyskp67) (If lot is full, find street arking nearby)
+  - [Parking](https://goo.gl/maps/JyuJCGEytgEyskp67) (If lot is full, find street parking nearby)
 
 ###### June 27th (Sunday)
 - **11:00 AM** Black Diamond
