@@ -18,7 +18,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Meeting Point](https://g.page/hamptonpearl?share) at Hotel
 
 ###### June 18th (Friday)
-- **11:00 AM** George Ballard Portland Tour
+- **11:00 AM** [George Ballard Portland Tour (30 Miles)](./georges_ride/georges_ride.md)
   - [Meeting Point](https://g.page/hamptonpearl?share) at Hotel
 - **6:30 PM** OMSI AKA Portland Group Ride (7pm Rollout)
   - [Parking](https://goo.gl/maps/tzqcW9i38PdXhXkt6) at Omsi
@@ -65,7 +65,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 
 ###### June 26th (Saturday)
 - Daytime TBD
-- **7:00 PM** SNR Weekly Group Ride
+- **7:00 PM** [SNR Weekly Group Ride](https://fb.me/e/PmcpvDk3)
   - [Parking](https://goo.gl/maps/JyuJCGEytgEyskp67) (If lot is full, find street parking nearby)
 
 ###### June 27th (Sunday)
