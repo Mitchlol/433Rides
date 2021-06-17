@@ -20,7 +20,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 ###### June 18th (Friday)
 - **11:00 AM** [George Ballard Portland Tour (30 Miles)](./georges_ride/georges_ride.md)
   - [Meeting Point](https://g.page/hamptonpearl?share) at Hotel
-- **6:30 PM** OMSI AKA Portland Group Ride (7pm Rollout)
+- **7:00 PM** OMSI AKA Portland Group Ride (7:30pm Rollout)
   - [Parking](https://goo.gl/maps/tzqcW9i38PdXhXkt6) at Omsi
   - [Meeting Point](https://goo.gl/maps/xh7NDiZHonnh6cgQ8) at Eastbank Esplanade
 
