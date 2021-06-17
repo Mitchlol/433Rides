@@ -44,7 +44,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - Meet at cars
 
 ###### June 21st (Monday)
-- **11:00 AM** Duthie Hill Mountain Bike Park
+- **11:00 AM** Duthie Hill Mountain Bike Park (Lots of short trails and jump lines)
   - [parking](https://goo.gl/maps/g7t7xTXpmuuTedZz6)
   - Meet at cars 
 
@@ -53,14 +53,19 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/jqmqzE9xLh74ve6A9) 
 
 ###### June 23rd (Wednesday)
-- **11:00 AM** Olallie mountain & Rattlesnek lake & maybe Iron Horse Trail (Must be Scouted)
+- **11:00 AM** Olallie mountain trail (Fun mountain climb)
+  - [Trailforks Trail Info](https://www.trailforks.com/trails/olallie-trail-70999/)
+  - [Parking](https://goo.gl/maps/h6jRvGVFKYFoprE26)
+  - [Additional Parking (Discover pass required)](https://goo.gl/maps/6a7zLXCzSttefvdcA)
+  - Meet in/around main lot
+- **Followed By** Swimming in Rattlesnake lake, bring a towel!
 
 ###### June 24th (Thursday)
 - **9:00 AM**  [Brian's Ride (63.5 Miles+)](./brians_ride/brians_ride.md)
   - [Parking](https://goo.gl/maps/Fipu7G39QX1ySZqe7) 
 
 ###### June 25th (Friday)
-- **11:00 AM** 360 Trails
+- **11:00 AM** 360 Trails (Lots of short-medim trails and a few jump lines)
   - [Parking](https://goo.gl/maps/J7mjsVQcBQPYhuWX9) (**No Cell Service In Lot**)
 
 ###### June 26th (Saturday)
@@ -69,15 +74,15 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/JyuJCGEytgEyskp67) (If lot is full, find street parking nearby)
 
 ###### June 27th (Sunday)
-- **11:00 AM** Black Diamond
+- **11:00 AM** Black Diamond (Lots of trails and sepeprate jump area)
   - [Parking](https://goo.gl/maps/DmAbavMNfcoDvn5A6) 
 
 ###### June 28th (Monday)
 - Lake Washington Both Bridges & Mercer Island Loop
 
 ###### June 29th (Tuesday)
-- **12:00 PM** Capital Forest (No Cell Serivce) (Bumpy Dirty Drive)
-  - [Parking](https://goo.gl/maps/jqB49Ag3U18FDCLb9)
+- **12:00 PM** Capital Forest (Fun mountain climb, and possibly time trials on a chill course) 
+  - [Parking](https://goo.gl/maps/jqB49Ag3U18FDCLb9) (No Cell Serivce) (Bumpy Dirty Drive)
   - Meet at cars
 
 ###### June 30th (Wednesday)
