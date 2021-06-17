@@ -49,8 +49,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - Meet at cars 
 
 ###### June 22nd (Tuesday)
-- **10:00 AM** Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
-  - [Parking](https://goo.gl/maps/jqmqzE9xLh74ve6A9) 
+- TBD
 
 ###### June 23rd (Wednesday)
 - **11:00 AM** [Olallie mountain trail (Fun mountain climb)](https://www.trailforks.com/trails/olallie-trail-70999/)
@@ -68,7 +67,8 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/J7mjsVQcBQPYhuWX9) (**No Cell Service In Lot**)
 
 ###### June 26th (Saturday)
-- Daytime TBD
+- **10:00 AM** Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
+  - [Parking](https://goo.gl/maps/jqmqzE9xLh74ve6A9) 
 - **7:00 PM** [SNR Weekly Group Ride](https://fb.me/e/PmcpvDk3)
   - [Parking](https://goo.gl/maps/JyuJCGEytgEyskp67) (If lot is full, find street parking nearby)
 
