@@ -53,8 +53,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/jqmqzE9xLh74ve6A9) 
 
 ###### June 23rd (Wednesday)
-- **11:00 AM** Olallie mountain trail (Fun mountain climb)
-  - [Trailforks Trail Info](https://www.trailforks.com/trails/olallie-trail-70999/)
+- **11:00 AM** [Olallie mountain trail (Fun mountain climb)](https://www.trailforks.com/trails/olallie-trail-70999/)
   - [Parking](https://goo.gl/maps/h6jRvGVFKYFoprE26)
   - [Additional Parking (Discover pass required)](https://goo.gl/maps/6a7zLXCzSttefvdcA)
   - Meet in/around main lot
