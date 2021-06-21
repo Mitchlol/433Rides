@@ -49,7 +49,8 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - Meet at cars 
 
 ###### June 22nd (Tuesday)
-- TBD
+- **11:00 AM** Seattle waterfront parks tour
+  - [Parking](https://goo.gl/maps/bqfxJUXE3D6qpmgu8)
 
 ###### June 23rd (Wednesday)
 - **11:00 AM** [Olallie mountain trail (Fun mountain climb)](https://www.trailforks.com/trails/olallie-trail-70999/)
