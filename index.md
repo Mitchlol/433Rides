@@ -66,7 +66,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/Fipu7G39QX1ySZqe7) 
 
 ###### June 25th (Friday)
-- **11:00 AM** 360 Trails (Lots of short-medim trails and a few jump lines)
+- **8:00 AM** 360 Trails (Lots of short-medim trails and a few jump lines)
   - [Parking](https://goo.gl/maps/J7mjsVQcBQPYhuWX9) (**No Cell Service In Lot**)
 
 ###### June 26th (Saturday)
