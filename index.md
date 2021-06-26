@@ -70,13 +70,13 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/J7mjsVQcBQPYhuWX9) (**No Cell Service In Lot**)
 
 ###### June 26th (Saturday)
-- **10:00 AM** Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
+- **8:00 AM** Seattle City Tour (Troll, gum wall, Space Needle, Volunteer Park)
   - [Parking](https://goo.gl/maps/jqmqzE9xLh74ve6A9) 
 - **7:00 PM** [SNR Weekly Group Ride](https://fb.me/e/PmcpvDk3)
   - [Parking](https://goo.gl/maps/JyuJCGEytgEyskp67) (If lot is full, find street parking nearby)
 
 ###### June 27th (Sunday)
-- **11:00 AM** Black Diamond (Lots of trails and sepeprate jump area)
+- **8:00 AM** Black Diamond (Lots of trails and sepeprate jump area)
   - [Parking](https://goo.gl/maps/DmAbavMNfcoDvn5A6) 
 
 ###### June 28th (Monday)
