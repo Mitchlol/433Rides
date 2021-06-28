@@ -80,12 +80,15 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
   - [Parking](https://goo.gl/maps/DmAbavMNfcoDvn5A6) 
 
 ###### June 28th (Monday)
-- Lake Washington Both Bridges & Mercer Island Loop
+- **5:00 AM** Lake Washington Both Bridges & Mercer Island Loop
+  - [Parking](https://goo.gl/maps/K7F2yqD2PtWuNkzn6)
+  - **Followed By** Swimming, bring a towel!
 
 ###### June 29th (Tuesday)
-- **12:00 PM** Capital Forest (Fun mountain climb, and possibly time trials on a chill course) 
-  - [Parking](https://goo.gl/maps/jqB49Ag3U18FDCLb9) (No Cell Serivce) (Bumpy Dirty Drive)
-  - Meet at cars
+- **6:00 AM** Iron horse trail to snoqualmie pass thru the 2mile tunnel 
+  - [Parking](https://goo.gl/maps/h6jRvGVFKYFoprE26)
+  - [Additional Parking (Discover pass required)](https://goo.gl/maps/6a7zLXCzSttefvdcA)
+  - Meet in/around main lot
 
 ###### June 30th (Wednesday)
 - Check out of Hotel
@@ -94,9 +97,6 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 
 
 ### Spare Ideas 
-1. Bellingham Galbraith  
-1. 360 Trails  
-1. Black Diamond  
-1. Tiger Mountain  
-1. Late Washington Both Bridges & Mercer Island Loop  
+1. Bellingham Galbraith
+1. Tiger Mountain
 1. Olympia tour
