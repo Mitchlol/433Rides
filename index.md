@@ -82,7 +82,7 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 ###### June 28th (Monday)
 - **5:00 AM** Lake Washington Both Bridges & Mercer Island Loop
   - [Parking](https://goo.gl/maps/K7F2yqD2PtWuNkzn6)
-  - **Followed By** Swimming, bring a towel!
+- **Followed By** Swimming, bring a towel!
 
 ###### June 29th (Tuesday)
 - **6:00 AM** Iron horse trail to snoqualmie pass thru the 2mile tunnel 
@@ -100,3 +100,4 @@ We will be staying at the [Hampton Inn & Suites Portland-Pearl District](https:/
 1. Bellingham Galbraith
 1. Tiger Mountain
 1. Olympia tour
+1. Capital Forest
